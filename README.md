@@ -1,3 +1,3 @@
 # Thank + Seonkyeong
 
-고마워, 선경
+고마워, 선경 !
